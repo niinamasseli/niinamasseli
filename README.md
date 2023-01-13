@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @niinamasseli
 - I'm Senior Lecturer at South-Eastern Finland University of Applied Sciences (Xamk).
-- 
